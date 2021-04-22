@@ -1,3 +1,3 @@
 # AgoDDoS
 
-beste free ddos script by Agocalmin 
+Beste  #DDoS script by Agocalmin 
